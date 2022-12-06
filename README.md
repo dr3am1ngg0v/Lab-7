@@ -12,3 +12,4 @@
 
 ## Скриншоты кода, теста
 ![](https://sun9-west.userapi.com/sun9-11/s/v1/ig2/RjzYPBM-FqN1-mmySG6ZQozhOMP1zVk_uJFHZ4Q1Lb_Mqj4pNpUimchX6Bay8yhZ2LhK5QHavfg-7FfBiDxfOl99.jpg?size=1524x950&quality=96&type=album)
+![](https://sun9-west.userapi.com/sun9-6/s/v1/ig2/Lb7oegp7eCJgtIMyVmmleq8pNSf0KVv1h1UY4kd8gzGrKdWrbZcv6PV8ZwjoN8dMpE9Wa-3jMb0k2y9Deiw2t_cL.jpg?size=1516x390&quality=96&type=album)
